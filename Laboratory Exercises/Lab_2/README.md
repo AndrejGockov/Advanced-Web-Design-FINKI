@@ -1,0 +1,1 @@
+The questions are the same as the exercises for the first partial exam
